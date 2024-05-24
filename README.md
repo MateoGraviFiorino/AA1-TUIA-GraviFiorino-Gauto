@@ -1,1 +1,0 @@
-# AA1-TUIA-GraviFiorino-Gauto
